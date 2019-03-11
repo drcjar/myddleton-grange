@@ -8,6 +8,10 @@ I've set up a mailing list for leaseholders here: ([https://groups.google.com/fo
 
 I await the list of emails of those who have consented to be on the list from APT.
 
+### Resident packs and other useful information
+
+I await resident packs from APT.
+
 ### Next AGM
 
 I await the date from APT.
