@@ -1,3 +1,17 @@
-### Welcome to IPFJES 
+### Welcome to myddleton-grange
 
-A case-control study to investigate whether job exposures are an under-recognized cause of idiopathic pulmonary fibrosis (IPF) using an interview to collect information about previous jobs and a blood test to investigate genetic susceptibility. ([clinicaltrials.gov NCT03211507](https://clinicaltrials.gov/ct2/show/NCT03211507))
+Welcome to the community website for Myddleton Grant
+
+### Mailing list
+
+I've set up a mailing list for leaseholders here: https://groups.google.com/forum/#!forum/myddleton-grange-leaseholders-mailing-list
+
+I await the list of emails of those who have consented to be on the list from APT.
+
+### Next AGM
+
+I await the date from APT.
+
+### Getting things on the website
+
+If you would like to get something on the website email <drcjar@gmail.com> or get in touch via twitter [@drcjar](https://twitter.com/drcjar)
