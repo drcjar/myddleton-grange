@@ -4,7 +4,7 @@ Welcome to the community website for Myddleton Grant
 
 ### Mailing list
 
-I've set up a mailing list for leaseholders here: https://groups.google.com/forum/#!forum/myddleton-grange-leaseholders-mailing-list
+I've set up a mailing list for leaseholders here: ([https://groups.google.com/forum/#!forum/myddleton-grange-leaseholders-mailing-list]https://groups.google.com/forum/#!forum/myddleton-grange-leaseholders-mailing-list)
 
 I await the list of emails of those who have consented to be on the list from APT.
 
