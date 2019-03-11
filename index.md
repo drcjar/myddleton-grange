@@ -1,6 +1,6 @@
 ### Welcome to myddleton-grange
 
-Welcome to the community website for Myddleton Grant
+Welcome to the community website for Myddleton Grange
 
 ### Mailing list
 
