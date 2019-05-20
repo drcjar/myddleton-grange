@@ -14,7 +14,10 @@ I await resident packs from APT.
 
 ### Next AGM
 
-I await the date from APT.
+On May 20th 2019 APT advised that there would not be a next AGM because this is not a requirement of companies house and not having one will allow us to avoid unecessary admin.  
+
+Myddleton Grange Members Meeting – Wednesday 5th June 7:30pm, Myddleton Grange Community Centre, 108 Colthurst Crescent, London N4 2FD
+
 
 ### Getting things on the website
 
